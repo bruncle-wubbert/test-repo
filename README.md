@@ -1,5 +1,3 @@
 ## todays plan
 
-my balls itchy
-oooo oooo itchy balls
-*scratch scratch scratch scratch scratch scratch scratch scratch scratch scratch scratch scratch scratch scratch scratch scratch scratch scratch scratch scratch scratch scratch scratch scratch scratch scratch scratch scratch scratch scratch scratch scratch scratch scratch scratch scratch scratch scratch scratch scratch scratch scratch scratch scratch scratch scratch scratch scratch scratch scratch scratch scratch scratch scratch scratch scratch scratch scratch scratch scratch scratch scratch scratch scratch scratch scratch scratch scratch scratch scratch scratch scratch scratch scratch scratch scratch scratch scratch scratch scratch scratch scratch scratch scratch scratch scratch scratch scratch scratch scratch scratch scratch scratch scratch scratch scratch scratch scratch scratch scratch scratch scratch scratch scratch scratch scratch scratch scratch scratch scratch scratch scratch scratch scratch scratch scratch scratch scratch scratch scratch scratch scratch scratch scratch scratch scratch scratch scratch scratch scratch scratch scratch scratch scratch scratch scratch scratch scratch scratch scratch scratch scratch scratch scratch scratch scratch scratch *
+words words words
